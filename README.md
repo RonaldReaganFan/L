@@ -1,1 +1,1 @@
-Big Chungus is so cute lol 
+Big Chungus has a big cock ngl. 
